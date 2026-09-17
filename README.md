@@ -40,6 +40,6 @@ Thank you for stopping by my profile! I am an independent creator and sole propr
 ---
 
 ## 🎮 🕹️ Video Games  
-* 💬 [**Discord Server**](YOUR_DISCORD_LINK_HERE)
+* 💬 [**Discord**](https://discord.com/users/darwood3788)
 * 🎮 [**Steam Profile**](https://steamcommunity.com/profiles/76561199375704589/)
 * 💚 [**Xbox Live Profile**](https://www.xbox.com/en-US/play/user/darwoodc)
