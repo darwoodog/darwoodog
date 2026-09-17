@@ -13,7 +13,8 @@ Thank you for stopping by my profile! I am an independent creator and sole propr
 
 ## 🌐 Main Website
 * 💻 [**Official Website**](https://site-w17f4os8i.godaddysites.com/)
-
+* 🛍️ [**eBay Shop**](https://www.ebay.com/usr/darwoode)
+  
 ---
 
 ## 💰 Support & Donation Options
@@ -33,9 +34,12 @@ Thank you for stopping by my profile! I am an independent creator and sole propr
 ---
 
 ## 📱 Socials & Rewards
-* 🤖 [**Reddit Profile**](https://www.reddit.com/user/Dar_Wood/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 * 🌟 [**PrizeRebel**](https://www.prizerebel.com/index.php?r=Darwood)
+* 📸 **Instagram:** Follow my daily updates and organic posts at [@darwoodi](https://www.instagram.com/darwoodi/)
+
+---
+
+## 🎮 🕹️ Video Games  
 * 💬 [**Discord Server**](YOUR_DISCORD_LINK_HERE)
-* 🛍️ [**eBay Shop**](https://www.ebay.com/usr/darwoode)
 * 🎮 [**Steam Profile**](https://steamcommunity.com/profiles/76561199375704589/)
 * 💚 [**Xbox Live Profile**](https://www.xbox.com/en-US/play/user/darwoodc)
