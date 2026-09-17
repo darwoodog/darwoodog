@@ -17,21 +17,21 @@ Thank you for stopping by my profile! I am an independent creator and sole propr
 ---
 
 ## 💰 Support & Donation Options
-* 💵 [**Venmo**](https://venmo.com)
-* 💸 [**Cash App**](https://cash.app)
-* ☕ [**Ko-fi**](https://ko-fi.com)
-* 🎁 [**PayPal Donation**](https://paypal.com)
-* 💼 [**PayPal Business Profile**](https://paypal.com)
+* 💵 [**Venmo**](https://venmo.com/u/darwoodvi)
+* 💸 [**Cash App**](https://cash.app/$darwoodc)
+* ☕ [**Ko-fi**](https://ko-fi.com/darwood)
+* 🎁 [**PayPal Donation**](https://www.paypal.com/donate/?hosted_button_id=CCUM6G97J24TC)
+* 💼 [**PayPal Business Profile**](https://www.paypal.com/biz/profile/darwoodx)
 
 ---
 
 ## 📣 Crowdfunding & Community
-* 💚 [**GoFundMe Campaign**](https://gofund.me)
-* 🚀 [**FundRazr**](https://fnd.us)
-* 🛸 [**Patreon Profile**](https://patreon.com)
+* 💚 [**GoFundMe Campaign**](https://gofund.me/d1bb0776a)
+* 🚀 [**FundRazr**](https://fnd.us/darwoodx.?ref=sh_5jZRWo0hQAP5jZRWo0hQAP)
+* 🛸 [**Patreon Profile**](https://www.patreon.com/cw/darrwood)
 
 ---
 
 ## 📱 Socials & Rewards
-* 🤖 [**Reddit Profile**](https://reddit.com)
-* 🌟 [**PrizeRebel**](https://prizerebel.com)
+* 🤖 [**Reddit Profile**](https://www.reddit.com/user/Dar_Wood/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+* 🌟 [**PrizeRebel**](https://www.prizerebel.com/index.php?r=Darwood)
