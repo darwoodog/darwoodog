@@ -34,9 +34,10 @@ Thank you for stopping by my profile! I am an independent creator and sole propr
 ---
 
 ## 📱 Socials & Rewards
+### 🔗 Connect With Me & Support My Work
+* 📸 **Instagram:** Follow my daily updates and organic posts at [@darwoodi](https://instagram.com)
+* 📌 **Pinterest:** Explore my creative boards and project links at [darwoodpin](https://www.pinterest.com/darwoodpin/)
 * 🌟 [**PrizeRebel**](https://www.prizerebel.com/index.php?r=Darwood)
-* 📸 **Instagram:** Follow my daily updates and organic posts at [@darwoodi](https://www.instagram.com/darwoodi/)
-
 ---
 
 ## 🎮 🕹️ Video Games  
