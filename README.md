@@ -35,3 +35,7 @@ Thank you for stopping by my profile! I am an independent creator and sole propr
 ## 📱 Socials & Rewards
 * 🤖 [**Reddit Profile**](https://www.reddit.com/user/Dar_Wood/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 * 🌟 [**PrizeRebel**](https://www.prizerebel.com/index.php?r=Darwood)
+* 💬 [**Discord Server**](YOUR_DISCORD_LINK_HERE)
+* 🛍️ [**eBay Shop**](https://www.ebay.com/usr/darwoode)
+* 🎮 [**Steam Profile**](https://steamcommunity.com/profiles/76561199375704589/)
+* 💚 [**Xbox Live Profile**](https://www.xbox.com/en-US/play/user/darwoodc)
