@@ -21,7 +21,7 @@ Thank you for stopping by my profile!  Welcome to my corner of the internet. I a
 ---
 
 ## 🌐 Main Website
-* 💻 [**Official Website**](https://site-w17f4os8i.godaddysites.com/)
+* 💻 [**GoDaddy**](https://site-w17f4os8i.godaddysites.com/)
 * 🛍️ [**eBay Shop**](https://www.ebay.com/usr/darwoode)
   
 ---
