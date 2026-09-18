@@ -1,5 +1,6 @@
 # 👋 Hello and Welcome!
-# Hi there, I'm Darren Long! 👋
+# Hi there, I'm Darren Andrew Long! 👋
+* 🌳 **Linktree:** Find all of my gaming, social, and support links in one place at [darrwood](https://linktr.ee/darrwood)
 
 Thank you for stopping by my profile!  Welcome to my corner of the internet. I am a writer focused on creating engaging content, sharing ideas, and connecting with readers globally. Writing is my primary service, passion, and way of entertaining people online. I am an independent creator and sole proprietor focused on online projects, investment banking concepts, and maximizing financial growth. I love building new platforms and connecting with people around the world. 
 
@@ -21,7 +22,6 @@ Thank you for stopping by my profile!  Welcome to my corner of the internet. I a
 
 ## 🌐 Main Website
 * 💻 [**Official Website**](https://site-w17f4os8i.godaddysites.com/)
-* 🌳 **Linktree:** Find all of my gaming, social, and support links in one place at [darrwood](https://linktr.ee/darrwood)
 * 🛍️ [**eBay Shop**](https://www.ebay.com/usr/darwoode)
   
 ---
@@ -43,7 +43,7 @@ Thank you for stopping by my profile!  Welcome to my corner of the internet. I a
 ---
 
 ## 📱 Socials & Rewards 🔗 Connect With Me & Support My Work! 
-*     [Connect with Darren Long](https://www.facebook.com/people/Darren-Long/61594381593659/)
+*    **Facebook:** [Connect with Darren Long](https://www.facebook.com/people/Darren-Long/61594381593659/)
 * 📸 **Instagram:** Follow my daily updates and organic posts at [@darwoodi](https://instagram.com/darwoodi)
 * 📌 **Pinterest:** Explore my creative boards and project links at [darwoodpin](https://www.pinterest.com/darwoodpin/)
 * 🌟 [**PrizeRebel**](https://www.prizerebel.com/index.php?r=Darwood)
