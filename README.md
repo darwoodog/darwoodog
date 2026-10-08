@@ -28,8 +28,7 @@ Thank you for stopping by my profile and checking it out!  Welcome to my corner 
 
 ## ☑️ Ways to Show Your Support
 * ☕ **Ko-fi:** Such a phenomenal and little known website. Such a gem and a hidden treasure. You'd be a fool not to fully endorse me frequently and often at [Ko-fi: Darren Andrew Long](https://ko-fi.com/darwood)
-* ⚫ [**Patreon: Darren Andrew Long**](https://www.patreon.com/cw/darrwood)
-* 🏴 **Patreon Memberships: Darren Andrew Long** Choose Your Membership. Currently I have 2 choices for you to pick from. First up, Year 1: Limited Time Inaugural Invite_ for **ONLY** $10 / month. What a steal. I can't                                                     believe it! I'm practically giving it away. And, finally, The Black Card_ for $100 / month. This one is very limited and rare, only 9999 spots available.                                                                     [Join My Membership](https://www.patreon.com/cw/darrwood/membership)
+* 🏴 [**Patreon: Darren Andrew Long**](https://www.patreon.com/cw/darrwood) Choose Your Membership. Currently I have 2 choices for you to pick from. First up, Year 1: Limited Time Inaugural Invite_ for **ONLY** $10 /                                            month. What a steal. I can't believe it! I'm practically giving it away. And, finally, The Black Card_ for $100 / month. This one is very limited and rare, only 9999 spots available.                                        [Join My Membership](https://www.patreon.com/cw/darrwood/membership)
 
 ---
 
