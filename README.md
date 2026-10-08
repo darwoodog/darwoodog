@@ -27,9 +27,9 @@ Thank you for stopping by my profile and checking it out!  Welcome to my corner 
 ---
 
 ## ☑️ Ways to Show Your Support
-* ☕ [**Ko-fi**](https://ko-fi.com/darwood)
+* ☕ **Ko-fi:** Such a phenomenal and little known website. Such a gem and a hidden treasure. You'd be a fool not to fully endorse me frequently and often at [Ko-fi: Darren Andrew Long](https://ko-fi.com/darwood)
 * ⚫ [**Patreon: Darren Andrew Long**](https://www.patreon.com/cw/darrwood)
-* 🏴 **Patreon Memberships: Darren Andrew Long** Choose Your Membership. Currently I have 2 choices for you to pick from. First up, Year 1: Limited Time Inaugural Invite_ for **ONLY** $10 / month. What a steal. I can't believe it! I'm practically giving it away. And, finally, The Black Card_ for $100 / month. This one is very limited and rare, only 9999 spots total available. [Choose Your Membership and be a part of my Patreon](https://www.patreon.com/cw/darrwood/membership)
+* 🏴 **Patreon Memberships: Darren Andrew Long** Choose Your Membership. Currently I have 2 choices for you to pick from. First up, Year 1: Limited Time Inaugural Invite_ for **ONLY** $10 / month. What a steal. I can't                                                     believe it! I'm practically giving it away. And, finally, The Black Card_ for $100 / month. This one is very limited and rare, only 9999 spots total available.                                                               [Join My Membership](https://www.patreon.com/cw/darrwood/membership)
 
 ---
 
@@ -42,9 +42,9 @@ Thank you for stopping by my profile and checking it out!  Welcome to my corner 
 ---
 
 ## 📣 Crowdfunding & Community
-* 💚 [**GoFundMe**](https://gofund.me/d1bb0776a)
-* 🚀 [**FundRazr**](https://fnd.us/darwoodx.?ref=sh_5jZRWo0hQAP5jZRWo0hQAP)
-* 👑 **Throne:** Let me introduce you to my Wish Lists. A Most Wanted List, a Treat the Creator List & A Digital Tip Jar. All of them have a multitude of products and dollar amounts, curated for your viewing, reviewing and deciding pleasure. Please, gift with my best interests at the top of your mind. [Throne: @darwood / Darren Andrew Long](https://throne.com/darwood)
+* 💚 **GoFundMe:** Help me launch my, independent, digital path forward! [Donate Now!](https://gofund.me/d1bb0776a)
+* 🚀 **FundRazr:** [All I need is 1 donation of $250K from somebody wonderful! That's it!] ](https://fnd.us/darwoodx.?ref=sh_5jZRWo0hQAP5jZRWo0hQAP)
+* 👑 **Throne:** Let me introduce you to my Wish Lists. A Most Wanted List, a Treat the Creator List & A Digital Tip Jar. All of them have a multitude of products and dollar amounts, curated for your viewing, reviewing                    and deciding pleasure. Please, gift with my best interests at the top of your mind. [Throne: @darwood / Darren Andrew Long](https://throne.com/darwood)
 
 ---
 
