@@ -30,27 +30,31 @@ Thank you for stopping by my profile!  Welcome to my corner of the internet. I a
 * 💵 [**Venmo**](https://venmo.com/u/darwoodvi)
 * 💸 [**Cash App**](https://cash.app/$darwoodc)
 * ☕ [**Ko-fi**](https://ko-fi.com/darwood)
-* 🎁 [**PayPal Donation**](https://www.paypal.com/donate/?hosted_button_id=CCUM6G97J24TC)
-* 💼 [**PayPal Business Profile**](https://www.paypal.com/biz/profile/darwoodx)
+* 🎁 [**PayPal Special Donation Edition**](https://www.paypal.com/donate/?hosted_button_id=CCUM6G97J24TC)
+* 💼 [**PayPal Biz**](https://www.paypal.com/biz/profile/darwoodx)
 
 ---
 
 ## 📣 Crowdfunding & Community
-* 💚 [**GoFundMe Campaign**](https://gofund.me/d1bb0776a)
+* 💚 [**GoFundMe**](https://gofund.me/d1bb0776a)
 * 🚀 [**FundRazr**](https://fnd.us/darwoodx.?ref=sh_5jZRWo0hQAP5jZRWo0hQAP)
-* 🛸 [**Patreon Profile**](https://www.patreon.com/cw/darrwood)
+* 🛸 [**Patreon**](https://www.patreon.com/cw/darrwood)
+* 👑 **Throne:** Let me introduce you to my Wish Lists. A Most Wanted List, a Treat the Creator List & A Digital Tip Jar. All of them have a multitude of products and dollar amounts, curated for your viewing, reviewing and deciding pleasure. Please, gift with my best interests at the top of your mind. [Throne: @darwood / Darren Andrew Long](https://throne.com/darwood)
 
 ---
 
 ## 📱 Socials & Rewards 🔗 Connect With Me & Support My Work! 
-* 👍 **Facebook:** [Connect with Darren Andrew Long](https://www.facebook.com/people/Darren-Long/61594381593659/)
+* 👍 **Facebook:** [Follow Darren Andrew Long](https://www.facebook.com/people/Darren-Long/61594381593659/)
 * 📸 **Instagram:** Follow my daily updates and organic posts at [@darwoodi](https://instagram.com/darwoodi)
 * 📌 **Pinterest:** Explore my creative boards and project links at [darwoodpin](https://www.pinterest.com/darwoodpin/)
-* 🌟 [**PrizeRebel**](https://www.prizerebel.com/index.php?r=Darwood)
+* 🌟 **PrizeRebel:** Win raffles, play the numbers, take surveys, refer friends and so much more! [Prize Rebel](https://www.prizerebel.com/index.php?r=Darwood)
+* 🎟️ **GrabPoints:** Ready to grab your points? Join For Free! Cash Out Your Way! Climb the leaderboard. Win the weekly pool. [GrabPoints](https://grabpoints.com/?ref=NKVXT9)
+
 
 ---
 
 ## 🕹️ 🎮 Video Games 🕹️ 🎮
 * 💬 [**Discord**](https://discord.com/users/darwood3788)
-* 🎮 [**Steam Profile**](https://steamcommunity.com/profiles/76561199375704589/)
-* 💚 [**Xbox Live Profile**](https://www.xbox.com/en-US/play/user/darwoodc)
+* 🚂 [**Steam**](https://steamcommunity.com/profiles/76561199375704589/)
+* 💚 [**Xbox**](https://www.xbox.com/en-US/play/user/darwoodc)
+* 🕹️ [**Twitch**](https://www.twitch.tv/darwoodt)
