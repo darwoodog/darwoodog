@@ -21,7 +21,8 @@ Thank you for stopping by my profile and checking it out!  Welcome to my corner 
 ---
 
 ## 🌐 Main Website
-* 💻 **GoDaddy: The Matrix Engine_:** <a href="https://site-w17f4os8i.godaddysites.com/"><img src="https://shields.io" alt="ALERT: MAINFRAME BREACHED_"></a>
+* 💻 **GoDaddy: The Matrix Engine_:** [`ALERT: MAINFRAME BREACHED_`](https://site-w17f4os8i.godaddysites.com/)
+
 
 
 
