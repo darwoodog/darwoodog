@@ -49,7 +49,7 @@ Thank you for stopping by my profile and checking it out!  Welcome to my corner 
 ---
 
 ## 📱 Socials & Rewards 🔗 Connect With Me & Support My Work! 
-* 👍 **Facebook:** [Follow Darren Andrew Long](https://www.facebook.com/people/Darren-Long/61594381593659/)
+* 👍 **Facebook:** [➡️Follow // Darren Andrew Long](https://www.facebook.com/people/Darren-Long/61594381593659/)
 * 📸 **Instagram:** Follow my daily updates and organic posts at [@darwoodi](https://instagram.com/darwoodi)
 * 📌 **Pinterest:** Explore my creative boards and project links at [darwoodpin](https://www.pinterest.com/darwoodpin/)
 * 🌟 **PrizeRebel:** Win raffles, play the numbers, take surveys, refer friends and so much more! [Prize Rebel](https://www.prizerebel.com/index.php?r=Darwood)
