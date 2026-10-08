@@ -43,7 +43,7 @@ Thank you for stopping by my profile and checking it out!  Welcome to my corner 
 
 ## 📣 Crowdfunding & Community
 * 💚 **GoFundMe:** Help me launch my, independent, digital path forward! [Donate Now!](https://gofund.me/d1bb0776a)
-* 🚀 **FundRazr:** All I need is 1 donation of $250K from somebody wonderful! That's it! [FundRazr: Please, Click Here!](https://fnd.us/darwoodx.?ref=sh_5jZRWo0hQAP5jZRWo0hQAP)
+* 🚀 **FundRazr:** All I need is 1 donation of $250K from somebody wonderful! That's it! [Please, Click Here!](https://fnd.us/darwoodx.?ref=sh_5jZRWo0hQAP5jZRWo0hQAP)
 * 👑 **Throne:** Let me introduce you to my Wish Lists. A Most Wanted List, a Treat the Creator List & A Digital Tip Jar. All of them have a multitude of products and dollar amounts, curated for your viewing, reviewing                    and deciding pleasure. Please, gift with my best interests at the top of your mind. [Throne: @darwood / Darren Andrew Long](https://throne.com/darwood)
 
 ---
