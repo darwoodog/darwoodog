@@ -1,8 +1,8 @@
-# 👋 Hello and Welcome!
-# Hi there, I'm Darren Andrew Long! 👋
-* 🌳 **Linktree:** Find all of my gaming, social, and support links in one place at [darrwood](https://linktr.ee/darrwood)
+# 👋 Hello and welcome to my GitHub!
+# I'm Darren Andrew Long! 👋
+* 🌳 **Linktree:** Find all of my links that you could ever imagine, all in one fantastic, amazing, exceptional, formidable, premier, substantial, monumental, superior, unparalleled place at [darrwood](https://linktr.ee/darrwood)
 
-Thank you for stopping by my profile!  Welcome to my corner of the internet. I am a writer focused on creating engaging content, sharing ideas, and connecting with readers globally. Writing is my primary service, passion, and way of entertaining people online. I am an independent creator and sole proprietor focused on online projects, investment banking concepts, and maximizing financial growth. I love building new platforms and connecting with people around the world. 
+Thank you for stopping by my profile and checking it out!  Welcome to my corner of the internet. I am an amateur, a self-taught operator, unpolished by design, focused on creating engaging content, sharing ideas, and connecting with readers globally. Writing is my primary service, passion, and way of entertaining people online. I am an independent creator and sole proprietor focused on online projects, investment banking concepts, and maximizing financial growth. I love building new platforms and connecting with people around the world. 
 
 ---
 
@@ -21,24 +21,29 @@ Thank you for stopping by my profile!  Welcome to my corner of the internet. I a
 ---
 
 ## 🌐 Main Website
-* 💻 [**GoDaddy**](https://site-w17f4os8i.godaddysites.com/)
-* 🛍️ [**eBay Shop**](https://www.ebay.com/usr/darwoode)
+* 💻 [**GoDaddy: The Matrix Engine_**](https://site-w17f4os8i.godaddysites.com/)
+* 🛍️ **eBay Shop:** [**darwoode**](https://www.ebay.com/usr/darwoode)
   
 ---
 
-## 💰 Support & Donation Options
-* 💵 [**Venmo**](https://venmo.com/u/darwoodvi)
-* 💸 [**Cash App**](https://cash.app/$darwoodc)
+## ☑️ Ways to Show Your Support
 * ☕ [**Ko-fi**](https://ko-fi.com/darwood)
-* 🎁 [**PayPal Special Donation Edition**](https://www.paypal.com/donate/?hosted_button_id=CCUM6G97J24TC)
+* ⚫ [**Patreon: Darren Andrew Long**](https://www.patreon.com/cw/darrwood)
+* 🏴 **Patreon Memberships: Darren Andrew Long** Choose Your Membership. Currently I have 2 choices for you to pick from. First up, Year 1: Limited Time Inaugural Invite_ for **ONLY** $10 / month. What a steal. I can't believe it! I'm practically giving it away. And, finally, The Black Card_ for $100 / month. This one is very limited and rare, only 9999 spots total available. [Choose Your Membership and be a part of my Patreon](https://www.patreon.com/cw/darrwood/membership)
+
+---
+
+## 🤑💸💰
+* 💸 [**Cash App**](https://cash.app/$darwoodc)
+* 💵 [**Venmo**](https://venmo.com/u/darwoodvi)
 * 💼 [**PayPal Biz**](https://www.paypal.com/biz/profile/darwoodx)
+* 🎁 [**PayPal Special Donation Edition**](https://www.paypal.com/donate/?hosted_button_id=CCUM6G97J24TC)
 
 ---
 
 ## 📣 Crowdfunding & Community
 * 💚 [**GoFundMe**](https://gofund.me/d1bb0776a)
 * 🚀 [**FundRazr**](https://fnd.us/darwoodx.?ref=sh_5jZRWo0hQAP5jZRWo0hQAP)
-* 🛸 [**Patreon**](https://www.patreon.com/cw/darrwood)
 * 👑 **Throne:** Let me introduce you to my Wish Lists. A Most Wanted List, a Treat the Creator List & A Digital Tip Jar. All of them have a multitude of products and dollar amounts, curated for your viewing, reviewing and deciding pleasure. Please, gift with my best interests at the top of your mind. [Throne: @darwood / Darren Andrew Long](https://throne.com/darwood)
 
 ---
