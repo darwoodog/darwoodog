@@ -204,7 +204,7 @@ OPERATIONAL LUCK: CRITICAL STRIKE PERCENTAGE // ELEVATED_
 
 +++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
 
-#### >>THE ADVANCED COMMAND SQUADRON: STRATEGIC COMMAND POST & LINK NET: LEVEL 5 STRATEGIC DETERRENT_🪖☢️🚀🖥️💻🖱️📵💾💀☠️🗑️🦾🤖💽
+* #### >>THE ADVANCED COMMAND SQUADRON: STRATEGIC COMMAND POST & LINK NET: LEVEL 5 STRATEGIC DETERRENT_🪖☢️🚀🖥️💻🖱️📵💾💀☠️🗑️🦾🤖💽
 * **GoDaddy:** [The Matrix Engine_](https://site-w17f4os8i.godaddysites.com/)
 * **Linktree:** [darrwood](https://linktr.ee/darrwood)
 
