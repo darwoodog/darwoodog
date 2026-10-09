@@ -204,13 +204,13 @@ OPERATIONAL LUCK: CRITICAL STRIKE PERCENTAGE // ELEVATED_
 
 +++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
 
-#### >>THE ADVANCED COMMAND SQUADRON: STRATEGIC COMMAND POST & LINK NET: LEVEL 5 STRATEGIC DETERRENT_🪖☢️🚀🖥️💻🖱️📵💾💀☠️🗑️🦾🤖💽
+#### THE ADVANCED COMMAND SQUADRON: STRATEGIC COMMAND POST & LINK NET: LEVEL 5 STRATEGIC DETERRENT_🪖☢️🚀🖥️💻🖱️📵💾💀☠️🗑️🦾🤖💽
 * **GoDaddy:** [The Matrix Engine_](https://site-w17f4os8i.godaddysites.com/)
 * **Linktree:** [darrwood](https://linktr.ee/darrwood)
 
 ++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
 
-#### >>OPERATION: COVERT INTEL FIELD OUTPOSTS ESTABLISHED / INDEPENDENT / DECENTRALIZED / CREATIVE DIGITAL CONTENT / OPTIMAL NETWORK: MAX CAPACITY / SYSTEMS FUNCTIONING: ALL SYSTEMS GO_
+#### OPERATION: COVERT INTEL FIELD OUTPOSTS ESTABLISHED / INDEPENDENT / DECENTRALIZED / CREATIVE DIGITAL CONTENT / OPTIMAL NETWORK: MAX CAPACITY / SYSTEMS FUNCTIONING: ALL SYSTEMS GO_
 * **Node 01 // Patreon:** Choose Your Membership. Currently I have 2 choices for you to pick from. First up, Year 1: Limited Time Inaugural Invite_ for **ONLY** $10 / month. What a steal. I can't believe it! I'm practically giving it away. And, finally, **The Black Card_ for $100 / month. This one is very limited and rare, only 9999 spots available.** [Join My Membership](https://www.patreon.com/cw/darrwood/membership)
 * **Node 02 // The Outlier Intel_ (Beehiiv):** Secure newsletter dispatch deck.
 * **Node 03 // (Substack):** Deep-dive text archives.
@@ -219,28 +219,28 @@ OPERATIONAL LUCK: CRITICAL STRIKE PERCENTAGE // ELEVATED_
 
 ------------------------------------------------------------------------------------------------------------
 
-#### >>MOTHER BASE SUPPLY DROP: ENCRYPTED BATTLEFIELD REQUISITION / ENCRYPTED INFILTRATION EXTRACTION DECK / AIR-GAPPED SUBSURFACE NETWORK: ZERO PROXY LEAK / END-TO-END CRYPTOGRAPHIC TUNNELING ENGAGED / ENCRYPTED TRANSACTION GRID [STATUS: ONLINE]
+#### MOTHER BASE SUPPLY DROP: ENCRYPTED BATTLEFIELD REQUISITION / ENCRYPTED INFILTRATION EXTRACTION DECK / AIR-GAPPED SUBSURFACE NETWORK: ZERO PROXY LEAK / END-TO-END CRYPTOGRAPHIC TUNNELING ENGAGED / ENCRYPTED TRANSACTION GRID [STATUS: ONLINE]
 *  **Cash App:** [$darwoodc](https://cash.app/$darwoodc)
 *  **Venmo:** [darwoodvi](https://venmo.com/u/darwoodvi)
 *  **PayPal Biz:** [@darwoodx](https://www.paypal.com/biz/profile/darwoodx)
 *  **PayPal Special Donation Edition** [Donate to Darren Andrew Long](https://www.paypal.com/donate/?hosted_button_id=CCUM6G97J24TC)
 
-#### >>OPERATION: LAUNCHPAD MOMENTUM / COVERT SHADOW BACKING / MOTHER BASE EXPANSION PROJECT / STRATEGIC CROWD FUNDING / AEGIS / THE BLACK BUDGET GUARANTEE / HIGH-NET-WORTH CLIENT BODYGUARD DEFENSE / VIP TARGET ACQUISTION: OPTIMIZED  / BLACK OPS ESCORT / CYBERNETIC HONEYPOT ACTIVE: DEFENSE DECOY INTRUSION / ANTI-RECONNAISSANCE COUNTERMEASURES - BUFFER SHIELD: MAX / KERNEL-LEVEL SAFEGUARD: ZERO-DAY MITIGATOIN ACTIVE / PHANTOM SAFEGUARD / INITALIZE VIP HANDSHAKE PROTOCOL / LEVEL 5 SECURITY MEASURES: ENABLED 
+#### OPERATION: LAUNCHPAD MOMENTUM / COVERT SHADOW BACKING / MOTHER BASE EXPANSION PROJECT / STRATEGIC CROWD FUNDING / AEGIS / THE BLACK BUDGET GUARANTEE / HIGH-NET-WORTH CLIENT BODYGUARD DEFENSE / VIP TARGET ACQUISTION: OPTIMIZED  / BLACK OPS ESCORT / CYBERNETIC HONEYPOT ACTIVE: DEFENSE DECOY INTRUSION / ANTI-RECONNAISSANCE COUNTERMEASURES - BUFFER SHIELD: MAX / KERNEL-LEVEL SAFEGUARD: ZERO-DAY MITIGATOIN ACTIVE / PHANTOM SAFEGUARD / INITALIZE VIP HANDSHAKE PROTOCOL / LEVEL 5 SECURITY MEASURES: ENABLED 
 *  **GoFundMe:** Help me launch my, independent, digital path forward! [Donate Now!](https://gofund.me/d1bb0776a)
 *  **FundRazr:** All I need is 1 donation of $250K from somebody wonderful! That's it! [Please, Click Here!](https://fnd.us/darwoodx.?ref=sh_5jZRWo0hQAP5jZRWo0hQAP)
 *  **Throne:** Let me introduce you to my Wish Lists. A Most Wanted List, a Treat the Creator List & A Digital Tip Jar. All of them have a multitude of products and dollar amounts, curated for your viewing, reviewing and deciding pleasure. Please, gift with my best interests at the top of your mind. [Throne: @darwood / Darren Andrew Long](https://throne.com/darwood)
 *  **eBay:** Collecting cards, growing my collection, getting my cards PSA graded and certified, compiling them for any future interests and inquiries. Come with me to the storefront: [**darwoode**](https://www.ebay.com/usr/darwoode)
 
-#### >>COVERT SATELLITE NET: SECURE DATA INTERCEPT & COMMS UPLINK / COVERT COMMS LINK & DATA BEACON LOG / COVERT COMMS UPLINK LOG / COORDINATES: PACIFIC NW_ SECTOR / GRID AREA: NW / SYSTEM STATUS: NOMINAL / CURRENT LOGISTICS: ONLINE / MAIN TERMINAL STATUS: OPERATIONAL_🛰️📡⁉️🪖
+#### COVERT SATELLITE NET: SECURE DATA INTERCEPT & COMMS UPLINK / COVERT COMMS LINK & DATA BEACON LOG / COVERT COMMS UPLINK LOG / COORDINATES: PACIFIC NW_ SECTOR / GRID AREA: NW / SYSTEM STATUS: NOMINAL / CURRENT LOGISTICS: ONLINE / MAIN TERMINAL STATUS: OPERATIONAL_🛰️📡⁉️🪖
 *  **Facebook:** ➡️[Follow](https://www.facebook.com/people/Darren-Long/61594381593659/) Darren Andrew Long
 *  **Instagram:** Follow my daily updates and organic posts at [@darwoodi](https://instagram.com/darwoodi)
 *  **Pinterest:** Explore my creative boards and project links at [darwoodpin](https://www.pinterest.com/darwoodpin/)
 
-#### >>MERCENARY RECRUITMENT PIPELINE: REFERRALS / ASSETS / REWARDS_🪖
+#### MERCENARY RECRUITMENT PIPELINE: REFERRALS / ASSETS / REWARDS_🪖
 *  **PrizeRebel:** Win raffles, play the numbers, take surveys, refer friends and so much more! [Prize Rebel](https://www.prizerebel.com/index.php?r=Darwood)
 *  **GrabPoints:** Ready to grab your points? Join For Free! Cash Out Your Way! Climb the leaderboard. Win the weekly pool. [GrabPoints](https://grabpoints.com/?ref=NKVXT9)
 
-* #### >>COMBAT RECORD: ENEMY LINES INTERCEPT_🪖🎮🕹️
+* #### COMBAT RECORD: ENEMY LINES INTERCEPT_🪖🎮🕹️
 *  **Discord:** [darwood3788](https://discord.com/users/darwood3788)
 *  **Steam:** [darwoodst](https://steamcommunity.com/profiles/76561199375704589/)
 *  **Xbox:** [darwoodc](https://www.xbox.com/en-US/play/user/darwoodc)
