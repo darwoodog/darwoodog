@@ -131,7 +131,6 @@ STATUS: COMBAT READY // PHANTOM PIPELINE STAGED
 
 * I am an amateur, a self-taught operator, unpolished by design, focused on creating engaging content, sharing ideas, practicing my skills and connecting with customers globally. Online digital creation is my primary service, passion, and way of entertaining the world.
 ```
-```text
 * ####  PHANTOM SNAPSHOT_
 * #####  ESSENTIAL INTEL PACKET_
 * ##### [ CORE LOGIC DRIVE_ ]
@@ -156,5 +155,4 @@ STATUS: COMBAT READY // PHANTOM PIPELINE STAGED
 *  **Discord:** [darwood3788](https://discord.com/users/darwood3788)
 *  **Steam:** [darwoodst](https://steamcommunity.com/profiles/76561199375704589/)
 *  **Xbox:** [darwoodc](https://www.xbox.com/en-US/play/user/darwoodc)
-*  **Twitch:** [darwoodt](https://www.twitch.tv/darwoodt)
-```
+*  **Twitch:** [darwoodt](https://www.twitch.tv/darwoodt) 
