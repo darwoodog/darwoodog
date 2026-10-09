@@ -139,7 +139,7 @@ STATUS: COMBAT READY // PHANTOM PIPELINE STAGED
 *  **Cash App:** [$darwoodc](https://cash.app/$darwoodc)
 *  **Venmo:** [darwoodvi](https://venmo.com/u/darwoodvi)
 *  **PayPal Biz:** [@darwoodx](https://www.paypal.com/biz/profile/darwoodx)
-*  **PayPal Special Donation Edition**[Donate to Darren Andrew Long](https://www.paypal.com/donate/?hosted_button_id=CCUM6G97J24TC)
+*  **PayPal Special Donation Edition** [Donate to Darren Andrew Long](https://www.paypal.com/donate/?hosted_button_id=CCUM6G97J24TC)
 *  **GoFundMe:** Help me launch my, independent, digital path forward! [Donate Now!](https://gofund.me/d1bb0776a)
 *  **FundRazr:** All I need is 1 donation of $250K from somebody wonderful! That's it! [Please, Click Here!](https://fnd.us/darwoodx.?ref=sh_5jZRWo0hQAP5jZRWo0hQAP)
 *  **Throne:** Let me introduce you to my Wish Lists. A Most Wanted List, a Treat the Creator List & A Digital Tip Jar. All of them have a multitude of products and dollar amounts, curated for your viewing, reviewing                    and deciding pleasure. Please, gift with my best interests at the top of your mind. [Throne: @darwood / Darren Andrew Long](https://throne.com/darwood)
