@@ -198,9 +198,9 @@ OPERATIONAL LUCK: CRITICAL STRIKE PERCENTAGE // ELEVATED_
 * [ CORE LOGIC DRIVE_]
 * [ AIR-GAPPED NODE_]
 
-* I am an amateur, a self-taught operator, unpolished by design, focused on creating engaging content, sharing ideas, practicing my skills and connecting with customers globally. Online digital creation is my primary service, passion, and way of entertaining the world. I seek to obtain and acquire iconic assets, giving me an elite loadout of advanced real-world economy and greatly increasing my net-worth.  Cyber and electronic warfare do not deter me from going after my main objective, rescuing and salvaging the remainder of my life here on planet Earth.
-
 ```
+
+I am an amateur, a self-taught operator, unpolished by design, focused on creating engaging content, sharing ideas, practicing my skills and connecting with customers globally. Online digital creation is my primary service, passion, and way of entertaining the world. I seek to obtain and acquire iconic assets, giving me an elite loadout of advanced real-world economy and greatly increasing my net-worth.  Cyber and electronic warfare do not deter me from going after my main objective, rescuing and salvaging the remainder of my life here on planet Earth.
 
 +++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
 
