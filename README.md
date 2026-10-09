@@ -213,10 +213,11 @@ OPERATIONAL LUCK: CRITICAL STRIKE PERCENTAGE // ELEVATED_
 *  **FundRazr:** All I need is 1 donation of $250K from somebody wonderful! That's it! [Please, Click Here!](https://fnd.us/darwoodx.?ref=sh_5jZRWo0hQAP5jZRWo0hQAP)
 *  **Throne:** Let me introduce you to my Wish Lists. A Most Wanted List, a Treat the Creator List & A Digital Tip Jar. All of them have a multitude of products and dollar amounts, curated for your viewing, reviewing                    and deciding pleasure. Please, gift with my best interests at the top of your mind. [Throne: @darwood / Darren Andrew Long](https://throne.com/darwood)
 *  **eBay:** Collecting cards, growing my collection, getting my cards PSA graded and certified, compiling them for any future interests and inquiries. Come with me to the storefront: [**darwoode**](https://www.ebay.com/usr/darwoode)
+  #### >>COVERT SATELLITE NET: SECURE DATA INTERCEPT & COMMS UPLINK / COVERT COMMS LINK & DATA BEACON LOG / COVERT COMMS UPLINK LOG / COORDINATES: PACIFIC NW_ SECTOR / GRID AREA: NW / SYSTEM STATUS: NOMINAL / CURRENT LOGISTICS: ONLINE / MAIN TERMINAL STATUS: OPERATIONAL_ 
 *  **Facebook:** ➡️[Follow](https://www.facebook.com/people/Darren-Long/61594381593659/) Darren Andrew Long
 *  **Instagram:** Follow my daily updates and organic posts at [@darwoodi](https://instagram.com/darwoodi)
 *  **Pinterest:** Explore my creative boards and project links at [darwoodpin](https://www.pinterest.com/darwoodpin/)
-  #### >>MERCENARY RECRUITMENT PIPELINE: REFERRAL ASSETS REWARDS_ ####
+  #### >>MERCENARY RECRUITMENT PIPELINE: REFERRALS / ASSETS / REWARDS_ ####
 *  **PrizeRebel:** Win raffles, play the numbers, take surveys, refer friends and so much more! [Prize Rebel](https://www.prizerebel.com/index.php?r=Darwood)
 *  **GrabPoints:** Ready to grab your points? Join For Free! Cash Out Your Way! Climb the leaderboard. Win the weekly pool. [GrabPoints](https://grabpoints.com/?ref=NKVXT9)
   #### >>COMBAT RECORD: ENEMY LINES INTERCEPT_ ####
