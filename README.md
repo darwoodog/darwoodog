@@ -177,8 +177,10 @@ OPERATIONAL LUCK: CRITICAL STRIKE PERCENTAGE // ELEVATED_
 
 ================================================================================
 
-* I am an amateur, a self-taught operator, unpolished by design, focused on creating engaging content, sharing ideas, practicing my skills and connecting with customers globally. Online digital creation is my primary service, passion, and way of entertaining the world. I seek to obtain and acquire iconic assets, giving me an elite loadout of advanced real-world economy and greatly increasing my net-worth.  Cyber and electronic warfare do not deter me from going after my main objective, rescuing and salvaging the remainder of my life here on planet Earth.  
+```text
+I am an amateur, a self-taught operator, unpolished by design, focused on creating engaging content, sharing ideas, practicing my skills and connecting with customers globally. Online digital creation is my primary service, passion, and way of entertaining the world. I seek to obtain and acquire iconic assets, giving me an elite loadout of advanced real-world economy and greatly increasing my net-worth.  Cyber and electronic warfare do not deter me from going after my main objective, rescuing and salvaging the remainder of my life here on planet Earth.  
 ```
+
 ```text
 * PHANTOM SNAPSHOT_
 * [ ESSENTIAL INTEL PACKET_]
@@ -204,7 +206,7 @@ OPERATIONAL LUCK: CRITICAL STRIKE PERCENTAGE // ELEVATED_
 
 +++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
 
-* #### >>THE ADVANCED COMMAND SQUADRON: STRATEGIC COMMAND POST & LINK NET: LEVEL 5 STRATEGIC DETERRENT_🪖☢️🚀🖥️💻🖱️📵💾💀☠️🗑️🦾🤖💽
+#### >>THE ADVANCED COMMAND SQUADRON: STRATEGIC COMMAND POST & LINK NET: LEVEL 5 STRATEGIC DETERRENT_🪖☢️🚀🖥️💻🖱️📵💾💀☠️🗑️🦾🤖💽
 * **GoDaddy:** [The Matrix Engine_](https://site-w17f4os8i.godaddysites.com/)
 * **Linktree:** [darrwood](https://linktr.ee/darrwood)
 
@@ -219,6 +221,7 @@ OPERATIONAL LUCK: CRITICAL STRIKE PERCENTAGE // ELEVATED_
 
 ------------------------------------------------------------------------------------------------------------
 
+#### >>MOTHER BASE SUPPLY DROP: ENCRYPTED BATTLEFIELD REQUISITION / ENCRYPTED INFILTRATION EXTRACTION DECK / ENCRYPTED TRANSACTION GRID_
 *  **Cash App:** [$darwoodc](https://cash.app/$darwoodc)
 *  **Venmo:** [darwoodvi](https://venmo.com/u/darwoodvi)
 *  **PayPal Biz:** [@darwoodx](https://www.paypal.com/biz/profile/darwoodx)
