@@ -1,4 +1,4 @@
-```GITHUB: OFFICIAL CREATOR PROFILE
+GITHUB: OFFICIAL CREATOR PROFILE
 ID: Darren Andrew Long
 **Linktree:** Find all of my links that you could ever imagine, all in one fantastic, amazing, exceptional, formidable, premier, substantial, monumental, superior, unparalleled place at [darrwood](https://linktr.ee/darrwood)
 * 💻 **GoDaddy: The Matrix Engine_:** [`ALERT: MAINFRAME BREACHED_`](https://site-w17f4os8i.godaddysites.com/)
