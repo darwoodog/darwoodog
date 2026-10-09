@@ -1,4 +1,7 @@
-```text
+================================================================================
+                           FOXHOUND OPERATIONAL PROFILE                         
+================================================================================
+
 GITHUB: darwoodog
 ID: Darren Andrew Long
 CODENAMES: Darwood, Dar Wood. 
@@ -8,6 +11,24 @@ GROUND ZERO: PACIFIC NORTHWEST
 OPERATIONAL AREA: DECENTRALIZED CYBERSPACE
 OBJECTIVE: MONETIZING THE GRIND
 EXTRACTION POINT: MILLIONAIRE
+
+================================================================================
+                           TACTICAL OVERVIEW & DOCTRINE                         
+================================================================================
+
+OPERATIONAL DOCTRINE: TACTICAL INFILTRATION ACTION
+--------------------------------------------------------------------------------
+* **Ghost Protocol:** Operating undetected within highly competitive digital vectors.
+* **Asymmetric Execution:** Turning amateur passions into a professional living.
+* **CQC (Close Quarters Creation):** Rapid deployment of high-impact digital content.
+
+CURRENT SYSTEM ARSENAL (TECH STACK)
+--------------------------------------------------------------------------------
+* **Primary Asset:** [Insert your main language/framework, e.g., Python / TypeScript]
+* **Secondary Asset:** [Insert your secondary tool, e.g., React / Next.js]
+* **Codec Frequency:** Secure digital pipeline active via GitHub repositories.
+
+================================================================================
 
 enertain
 practice my skills
