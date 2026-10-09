@@ -201,11 +201,14 @@ OPERATIONAL LUCK: CRITICAL STRIKE PERCENTAGE // ELEVATED_
 * [ CORE LOGIC DRIVE_]
 * [ AIR-GAPPED NODE_]
 ```
+
++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
+
 #### >>THE ADVANCED COMMAND SQUADRON: STRATEGIC COMMAND POST & LINK NET: LEVEL 5 STRATEGIC DETERRENT_🪖☢️🚀🖥️💻🖱️📵💾💀☠️🗑️🦾🤖💽
 * **GoDaddy:** [The Matrix Engine_](https://site-w17f4os8i.godaddysites.com/)
 * **Linktree:** [darrwood](https://linktr.ee/darrwood)
 
-+++++++++++++++++++++++++++++++++++++++++++++
+++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
 
 #### >>OPERATION: COVERT INTEL FIELD OUTPOSTS ESTABLISHED / INDEPENDENT / DECENTRALIZED / CREATIVE DIGITAL CONTENT / OPTIMAL NETWORK: MAX CAPACITY / SYSTEMS FUNCTIONING: ALL SYSTEMS GO_
 * **Node 01 // Patreon:** Choose Your Membership. Currently I have 2 choices for you to pick from. First up, Year 1: Limited Time Inaugural Invite_ for **ONLY** $10 /                                                                                  month. What a steal. I can't believe it! I'm practically giving it away. And, finally, **The Black Card_ for $100 / month. This one is very limited and rare, only 9999 spots                                                 available.** [Join My Membership](https://www.patreon.com/cw/darrwood/membership)
