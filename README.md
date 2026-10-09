@@ -28,14 +28,35 @@ CURRENT SYSTEM ARSENAL (TECH STACK)
 * **Primary Asset:** [Insert your main language/framework, e.g., Python / TypeScript]
 * **Secondary Asset:** [Insert your secondary tool, e.g., React / Next.js]
 * **Codec Frequency:** Secure digital pipeline active via GitHub repositories.
+ 
+================================================================================
+                       DIAMOND DOGS: REVENUE PIPELINES                          
+================================================================================
+"We don't draw power from our government. Our power comes from the venture."
+
+THE PRIMARY PAYLOAD_
+--------------------------------------------------------------------------------
+* **Deliver Payload (Patreon):** [Your Patreon Link]
+  * *Dedicated area for encrypted client memo.*
+  * *Year 1, All Access, Monthly Membership.*
+
+THE LIQUIDITY INJECTION_
+--------------------------------------------------------------------------------
+* **Streamlabs: Liquidity Injection_:** [Your Streamlabs Link]
+* **Sponsored by Espresso (Buy Me A Coffee):** [Your Buy Me A Coffee Link]
+
+THE ENDOWMENT PORTFOLIO_
+--------------------------------------------------------------------------------
+* **Venmo: Treasury_:** [Your Venmo Link] (Profile: darwoodvi)
+* **Cash App: Clearing House_:** [Your Cash App Link] (Handle: $darwoodc)
+* **PayPal Biz: Revenue Engine_:** [Your PayPal Donate Link] (User: darwoodx)
 
 ================================================================================
-
 enertain
 practice my skills
 Web Development: Designing, building, and optimizing custom landing pages.
 
-* Thank you for stopping by my profile and checking it out!  Welcome to my corner of the internet. I am an amateur, a self-taught operator, unpolished by design, focused on creating engaging content, sharing ideas, and connecting with readers globally. Writing is my primary service, passion, and way of entertaining people online. I am an independent creator and sole proprietor focused on online projects, investment banking concepts, and maximizing financial growth. I love building new platforms and connecting with people around the world. 
+* Thank you for stopping by my profile and checking it out!  Welcome to my corner of the internet. I am an amateur, a self-taught operator, unpolished by design, focused on creating engaging content, sharing ideas, and connecting with readers globally. Writing is my primary service, passion, and way of entertaining people online. I am an independent creator and sole proprietor focused on online projects, investment banking concepts, and maximizing financial growth. I love building new platforms and connecting with people around the world.
 ```
 
 **GoDaddy: The Matrix Engine_:** [`ALERT: MAINFRAME BREACHED_`](https://site-w17f4os8i.godaddysites.com/)
