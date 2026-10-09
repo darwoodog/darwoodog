@@ -218,7 +218,7 @@ OPERATIONAL LUCK: CRITICAL STRIKE PERCENTAGE // ELEVATED_
 *  **Pinterest:** Explore my creative boards and project links at [darwoodpin](https://www.pinterest.com/darwoodpin/)
 *  **PrizeRebel:** Win raffles, play the numbers, take surveys, refer friends and so much more! [Prize Rebel](https://www.prizerebel.com/index.php?r=Darwood)
 *  **GrabPoints:** Ready to grab your points? Join For Free! Cash Out Your Way! Climb the leaderboard. Win the weekly pool. [GrabPoints](https://grabpoints.com/?ref=NKVXT9)
->>  #### COMBAT RECORD: ENEMY LINES INTERCEPT_ ####
+   #### >> COMBAT RECORD: ENEMY LINES INTERCEPT_ ####
 *  **Discord:** [darwood3788](https://discord.com/users/darwood3788)
 *  **Steam:** [darwoodst](https://steamcommunity.com/profiles/76561199375704589/)
 *  **Xbox:** [darwoodc](https://www.xbox.com/en-US/play/user/darwoodc)
