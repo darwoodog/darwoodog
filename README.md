@@ -38,8 +38,8 @@ Web Development: Designing, building, and optimizing custom landing pages.
 * Thank you for stopping by my profile and checking it out!  Welcome to my corner of the internet. I am an amateur, a self-taught operator, unpolished by design, focused on creating engaging content, sharing ideas, and connecting with readers globally. Writing is my primary service, passion, and way of entertaining people online. I am an independent creator and sole proprietor focused on online projects, investment banking concepts, and maximizing financial growth. I love building new platforms and connecting with people around the world. 
 ```
 
-***GoDaddy: The Matrix Engine_:** [`ALERT: MAINFRAME BREACHED_`](https://site-w17f4os8i.godaddysites.com/)
-**Linktree:** Find all of my links that you could ever imagine, all in one fantastic, amazing, exceptional, formidable, premier, substantial, monumental, superior, unparalleled place at [darrwood](https://linktr.ee/darrwood)
+**GoDaddy: The Matrix Engine_:** [`ALERT: MAINFRAME BREACHED_`](https://site-w17f4os8i.godaddysites.com/)
+**Linktree:** [darrwood](https://linktr.ee/darrwood)Find all of my links that you could ever imagine, all in one fantastic, amazing, exceptional, formidable, premier, substantial, monumental, superior, unparalleled place.
 ## Examples of my amateur profession...
 * ☕ **Ko-fi:** Such a phenomenal and little known website. Such a gem and a hidden treasure. You'd be a fool not to fully endorse me frequently and often at [Ko-fi: Darren Andrew Long](https://ko-fi.com/darwood)
 
