@@ -9,9 +9,10 @@ CODENAMES: Darwood, Dar Wood.
 MANIFEST: DIGITAL CONTENT CREATION
 DOSSIER: CLASSIFIED 
 GROUND ZERO: PACIFIC NORTHWEST
-OPERATIONAL AREA: DECENTRALIZED CYBERSPACE
+OPERATIONAL AREA: DECENTRALIZED CYBERSPACE 
+MAINFRAME LINK: [GODADDY: THE MATRIX ENGINE_: ALERT: MAINFRAME BREACHED](https://site-w17f4os8i.godaddysites.com/)
 OBJECTIVE: MONETIZING THE GRIND
-EXTRACTION POINT: MILLIONAIRE
+EXTRACTION POINT: SUCCESS // MILLIONAIRE STATUS 
 
 ================================================================================
                            TACTICAL OVERVIEW & DOCTRINE                         
@@ -130,7 +131,6 @@ STATUS: COMBAT READY // PHANTOM PIPELINE STAGED
 
 * Thank you for stopping by my profile and checking it out!  Welcome to my corner of the internet. I am an amateur, a self-taught operator, unpolished by design, focused on creating engaging content, sharing ideas, practicing my skills and connecting with readers globally. Online digital creation is my primary service, passion, and way of entertaining people online. I am an independent creator and sole proprietor focused on online projects, investment banking concepts, and maximizing financial growth. I love building new platforms, Web Development: Designing, building, and optimizing custom landing pages and connecting with people around the world.
 ```
-**GoDaddy: The Matrix Engine_:** [ALERT: MAINFRAME BREACHED](https://site-w17f4os8i.godaddysites.com/)
 **Linktree:** [darrwood](https://linktr.ee/darrwood)
 * ☕ **Ko-fi:** [Ko-fi: Darren Andrew Long](https://ko-fi.com/darwood)
 Choose Your Membership. Currently I have 2 choices for you to pick from. First up, Year 1: Limited Time Inaugural Invite_ for **ONLY** $10 /                                                                                  month. What a steal. I can't believe it! I'm practically giving it away. And, finally, **The Black Card_ for $100 / month. This one is very limited and rare, only 9999 spots                                                 available.**[Join My Membership](https://www.patreon.com/cw/darrwood/membership)
