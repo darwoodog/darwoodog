@@ -177,11 +177,27 @@ OPERATIONAL LUCK: CRITICAL STRIKE PERCENTAGE // ELEVATED_
 
 ================================================================================
 
-* I am an amateur, a self-taught operator, unpolished by design, focused on creating engaging content, sharing ideas, practicing my skills and connecting with customers globally. Online digital creation is my primary service, passion, and way of entertaining the world.
+* I am an amateur, a self-taught operator, unpolished by design, focused on creating engaging content, sharing ideas, practicing my skills and connecting with customers globally. Online digital creation is my primary service, passion, and way of entertaining the world. I seek to obtain and acquire iconic assets, giving me an elite loadout of advanced real-world economy and greatly increasing my net-worth.  Cyber and electronic warfare do not deter me from going after my main objective, rescuing and salvaging the remainder of my life here on planet Earth.  
 ```
 ```text
 * PHANTOM SNAPSHOT_
 * [ ESSENTIAL INTEL PACKET_]
+* [ BIONIC PROSTHETICS_]
+* [ NEURAL UPGRADES_]
+* [ BIONIC ARM_] (MGSV)
+* [ STUN ARM_]
+* [ BIOLOGICAL ENHANCEMENT_]
+* [ HIGH-FREQUENCY JAMMER_]
+* [ BUG DETECTOR / RF SCANNER_]
+* [ SATCOM_]
+* [ TACTICAL DATA LINK_]
+* [ CHAFF GRENADE_]
+* [ EMP GENERATOR_]
+* [ MARKER BEACON_]
+* [ STEALTH CAMOUFLAGE_]
+* [ BIONIC EYE_]
+* [ SNEAKING SUIT_]
+* [ OCTO-CAMO_]
 * [ CORE LOGIC DRIVE_]
 * [ AIR-GAPPED NODE_]
 ```
