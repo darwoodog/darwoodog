@@ -35,7 +35,7 @@ CURRENT SYSTEM ARSENAL (TECH STACK)
 ================================================================================
 "We don't draw power from our government. Our power comes from the venture."
 
-THE PRIMARY PAYLOAD_
+SOVEREIGN LEDGER_
 --------------------------------------------------------------------------------
 * **Deliver Payload (Patreon):** [Your Patreon Link]
   * *Dedicated area for encrypted client memo.*
@@ -46,7 +46,7 @@ THE LIQUIDITY INJECTION_
 * **Streamlabs: Liquidity Injection_:** [Your Streamlabs Link]
 * **Sponsored by Espresso (Buy Me A Coffee):** [Your Buy Me A Coffee Link]
 
-THE ENDOWMENT PORTFOLIO_
+TREASURY CORE_
 --------------------------------------------------------------------------------
 * **Venmo: Treasury_:** [Your Venmo Link] (Profile: darwoodvi)
 * **Cash App: Clearing House_:** [Your Cash App Link] (Handle: $darwoodc)
