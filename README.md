@@ -184,6 +184,7 @@ OPERATIONAL LUCK: CRITICAL STRIKE PERCENTAGE // ELEVATED_
 * **[ ESSENTIAL INTEL PACKET_]**
 * **[ CORE LOGIC DRIVE_]**
 * **[ AIR-GAPPED NODE_]**
+```
 * **GoDaddy:** [The Matrix Engine_](https://site-w17f4os8i.godaddysites.com/)
 * **Linktree:** [darrwood](https://linktr.ee/darrwood)
 * **Ko-fi:** ☕ [Darren Andrew Long](https://ko-fi.com/darwood)
@@ -205,4 +206,3 @@ OPERATIONAL LUCK: CRITICAL STRIKE PERCENTAGE // ELEVATED_
 *  **Steam:** [darwoodst](https://steamcommunity.com/profiles/76561199375704589/)
 *  **Xbox:** [darwoodc](https://www.xbox.com/en-US/play/user/darwoodc)
 *  **Twitch:** [darwoodt](https://www.twitch.tv/darwoodt) 
-```
