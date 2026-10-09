@@ -30,7 +30,7 @@ CURRENT SYSTEM ARSENAL (TECH STACK)
 * **Codec Frequency:** Secure digital pipeline active via GitHub repositories.
 
 ================================================================================
-
+```
 enertain
 practice my skills
 Web Development: Designing, building, and optimizing custom landing pages.
