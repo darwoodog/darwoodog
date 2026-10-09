@@ -206,9 +206,21 @@ OPERATIONAL LUCK: CRITICAL STRIKE PERCENTAGE // ELEVATED_
 * **Linktree:** [darrwood](https://linktr.ee/darrwood)
 #### >>OPERATION: COVERT INTEL FIELD OUTPOSTS ESTABLISHED / INDEPENDENT / DECENTRALIZED / CREATIVE DIGITAL CONTENT / OPTIMAL NETWORK: MAX CAPACITY / SYSTEMS FUNCTIONING: ALL SYSTEMS GO_
 ================================================================================
+              >> OPERATION: COVERT INTEL FIELD OUTPOSTS ESTABLISHED_            
+================================================================================
+"INDEPENDENT // DECENTRALIZED // CREATIVE DIGITAL CONTENT // SYSTEMS FUNCTIONING: ALL SYSTEMS GO_"
+================================================================================
 >> OPERATION: COVERT INTEL FIELD OUTPOSTS ESTABLISHED_
 >> NETWORK CONFIGURATION: INDEPENDENT / DECENTRALIZED / CREATIVE DIGITAL CONTENT
 >> TELEMETRY DATA: OPTIMAL NETWORK: MAX CAPACITY // SYSTEMS STATUS: ALL SYSTEMS GO
+================================================================================
+
+* **Node 01 // The Primary Payload (Patreon):** Premium subscription pipeline.
+* **Node 02 // The Outlier Intel_ (Beehiiv):** Secure newsletter dispatch deck.
+* **Node 03 // Main Structural Suite (Substack):** Deep-dive text archives.
+* **Node 04 // The Endowment Reserve (Ko-fi):** One-time and recurring asset intake.
+* **Node 05 // Sponsored by Espresso (Buy Me A Coffee):** Rapid liquidity node.
+
 ================================================================================
 
 * **Node 01 // Patreon:** Choose Your Membership. Currently I have 2 choices for you to pick from. First up, Year 1: Limited Time Inaugural Invite_ for **ONLY** $10 /                                                                                  month. What a steal. I can't believe it! I'm practically giving it away. And, finally, **The Black Card_ for $100 / month. This one is very limited and rare, only 9999 spots                                                 available.** [Join My Membership](https://www.patreon.com/cw/darrwood/membership)
