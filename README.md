@@ -177,8 +177,6 @@ OPERATIONAL LUCK: CRITICAL STRIKE PERCENTAGE // ELEVATED_
 
 ================================================================================
 
-
-```text
 * PHANTOM SNAPSHOT_
 * [ ESSENTIAL INTEL PACKET_]
 * [ BIONIC PROSTHETICS_]
