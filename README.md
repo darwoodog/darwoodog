@@ -216,6 +216,7 @@ OPERATIONAL LUCK: CRITICAL STRIKE PERCENTAGE // ELEVATED_
 *  **Facebook:** ➡️[Follow](https://www.facebook.com/people/Darren-Long/61594381593659/) Darren Andrew Long
 *  **Instagram:** Follow my daily updates and organic posts at [@darwoodi](https://instagram.com/darwoodi)
 *  **Pinterest:** Explore my creative boards and project links at [darwoodpin](https://www.pinterest.com/darwoodpin/)
+  #### >>MERCENARY RECRUITMENT PIPELINE: REFERRAL ASSETS REWARDS_ ####
 *  **PrizeRebel:** Win raffles, play the numbers, take surveys, refer friends and so much more! [Prize Rebel](https://www.prizerebel.com/index.php?r=Darwood)
 *  **GrabPoints:** Ready to grab your points? Join For Free! Cash Out Your Way! Climb the leaderboard. Win the weekly pool. [GrabPoints](https://grabpoints.com/?ref=NKVXT9)
   #### >>COMBAT RECORD: ENEMY LINES INTERCEPT_ ####
