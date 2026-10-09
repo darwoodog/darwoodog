@@ -179,6 +179,7 @@ OPERATIONAL LUCK: CRITICAL STRIKE PERCENTAGE // ELEVATED_
 
 * I am an amateur, a self-taught operator, unpolished by design, focused on creating engaging content, sharing ideas, practicing my skills and connecting with customers globally. Online digital creation is my primary service, passion, and way of entertaining the world.
 ```
+```text
 * **PHANTOM SNAPSHOT_**
 * **[ ESSENTIAL INTEL PACKET_]**
 * **[ CORE LOGIC DRIVE_]**
@@ -204,3 +205,4 @@ OPERATIONAL LUCK: CRITICAL STRIKE PERCENTAGE // ELEVATED_
 *  **Steam:** [darwoodst](https://steamcommunity.com/profiles/76561199375704589/)
 *  **Xbox:** [darwoodc](https://www.xbox.com/en-US/play/user/darwoodc)
 *  **Twitch:** [darwoodt](https://www.twitch.tv/darwoodt) 
+```
