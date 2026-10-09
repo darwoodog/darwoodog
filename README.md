@@ -3,7 +3,6 @@
 **Linktree:** ('Find all of my links that you could ever imagine, all in one fantastic, amazing, exceptional, formidable, premier, substantial, monumental, superior, unparalleled place at [darrwood](https://linktr.ee/darrwood)')
 # '🌐 Main Website
 * 💻 **GoDaddy: The Matrix Engine_:** [`ALERT: MAINFRAME BREACHED_`](https://site-w17f4os8i.godaddysites.com/)
-* 🛍️ **eBay Shop:** [**darwoode**](https://www.ebay.com/usr/darwoode)
 ```Thank you for stopping by my profile and checking it out!  Welcome to my corner of the internet. I am an amateur, a self-taught operator, unpolished by design, focused on creating engaging content, sharing ideas, and connecting with readers globally. Writing is my primary service, passion, and way of entertaining people online. I am an independent creator and sole proprietor focused on online projects, investment banking concepts, and maximizing financial growth. I love building new platforms and connecting with people around the world.```
 
 ---
@@ -39,7 +38,7 @@
 * 💚 **GoFundMe:** Help me launch my, independent, digital path forward! [Donate Now!](https://gofund.me/d1bb0776a)
 * 🚀 **FundRazr:** All I need is 1 donation of $250K from somebody wonderful! That's it! [Please, Click Here!](https://fnd.us/darwoodx.?ref=sh_5jZRWo0hQAP5jZRWo0hQAP)
 * 👑 **Throne:** Let me introduce you to my Wish Lists. A Most Wanted List, a Treat the Creator List & A Digital Tip Jar. All of them have a multitude of products and dollar amounts, curated for your viewing, reviewing                    and deciding pleasure. Please, gift with my best interests at the top of your mind. [Throne: @darwood / Darren Andrew Long](https://throne.com/darwood)
-
+* 🛍️ **eBay:** Collecting cards, growing my collection, getting my cards PSA graded and certified, compiling them for any future interests and inquiries.[**darwoode**](https://www.ebay.com/usr/darwoode)
 ---
 
 ## 📱 Socials & Rewards 🔗 Connect With Me & Support My Work! 
@@ -48,7 +47,6 @@
 * 📌 **Pinterest:** Explore my creative boards and project links at [darwoodpin](https://www.pinterest.com/darwoodpin/)
 * 🌟 **PrizeRebel:** Win raffles, play the numbers, take surveys, refer friends and so much more! [Prize Rebel](https://www.prizerebel.com/index.php?r=Darwood)
 * 🎟️ **GrabPoints:** Ready to grab your points? Join For Free! Cash Out Your Way! Climb the leaderboard. Win the weekly pool. [GrabPoints](https://grabpoints.com/?ref=NKVXT9)
-
 
 ---
 
