@@ -1,8 +1,7 @@
 # `GitHub: Official Creator Profile`
-
-ID: Darren Andrew Long_
-Linktree: ('Find all of my links that you could ever imagine, all in one fantastic, amazing, exceptional, formidable, premier, substantial, monumental, superior, unparalleled place at [darrwood](https://linktr.ee/darrwood)')
-  🌐 Main Website
+# 'ID: Darren Andrew Long_
+# 'Linktree: ('Find all of my links that you could ever imagine, all in one fantastic, amazing, exceptional, formidable, premier, substantial, monumental, superior, unparalleled place at [darrwood](https://linktr.ee/darrwood)')
+# '🌐 Main Website
 * 💻 **GoDaddy: The Matrix Engine_:** [`ALERT: MAINFRAME BREACHED_`](https://site-w17f4os8i.godaddysites.com/)
 * 🛍️ **eBay Shop:** [**darwoode**](https://www.ebay.com/usr/darwoode)
 ## Examples of my amateur profession...
