@@ -215,7 +215,7 @@ OPERATIONAL LUCK: CRITICAL STRIKE PERCENTAGE // ELEVATED_
 * **Node 02 // The Outlier Intel_ (Beehiiv):** Secure newsletter dispatch deck.
 * **Node 03 // (Substack):** Deep-dive text archives.
 * **Node 04 //** ☕ [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/L4I3269RD5)
-* **Node 05 // Sponsored by Espresso (Buy Me A Coffee):** Rapid liquidity node.
+* **Node 05 // Sponsored by Espresso (Buy Me A Coffee):** [darwoodxo](buymeacoffee.com/darwoodxo)
 
 ++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
 
