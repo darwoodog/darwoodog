@@ -214,7 +214,7 @@ OPERATIONAL LUCK: CRITICAL STRIKE PERCENTAGE // ELEVATED_
 * **Node 01 // Patreon:** Choose Your Membership. Currently I have 2 choices for you to pick from. First up, Year 1: Limited Time Inaugural Invite_ for **ONLY** $10 / month. What a steal. I can't believe it! I'm practically giving it away. And, finally, **The Black Card_ for $100 / month. This one is very limited and rare, only 9999 spots available.** [Join My Membership](https://www.patreon.com/cw/darrwood/membership)
 * **Node 02 // The Outlier Intel_ (Beehiiv):** Secure newsletter dispatch deck.
 * **Node 03 // (Substack):** Deep-dive text archives.
-* **Node 04 // Ko-fi:** ☕ [Darren Andrew Long](https://ko-fi.com/darwood)
+* **Node 04 // Ko-fi:** ☕ [Darren Andrew Long](https://ko-fi.com/darwood) [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/L4I3269RD5)
 * **Node 05 // Sponsored by Espresso (Buy Me A Coffee):** Rapid liquidity node.
 
 ++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
