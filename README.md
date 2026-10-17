@@ -236,7 +236,7 @@ OPERATIONAL LUCK: CRITICAL STRIKE PERCENTAGE // ELEVATED_
 +++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
 
 #### COVERT SATELLITE NET: SECURE DATA INTERCEPT & COMMS UPLINK / COVERT COMMS LINK & DATA BEACON LOG / COVERT COMMS UPLINK LOG / COORDINATES: PACIFIC NW_ SECTOR / GRID AREA: NW / SYSTEM STATUS: NOMINAL / CURRENT LOGISTICS: ONLINE / MAIN TERMINAL STATUS: OPERATIONAL_🛰️📡⁉️🪖
-*  **Facebook:** ➡️[Follow](https://www.facebook.com/people/Darren-Long/61594381593659/) Darren Andrew Long
+*  **Facebook:** ➡️[Follow](https://www.facebook.com/profile.php?id=61595181050179) Darren Andrew Long
 *  **Instagram:** Follow my daily updates and organic posts at [@darwoodi](https://instagram.com/darwoodi)
 *  **Pinterest:** Explore my creative boards and project links at [darwoodpin](https://www.pinterest.com/darwoodpin/)
 
