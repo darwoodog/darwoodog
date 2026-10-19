@@ -249,6 +249,7 @@ OPERATIONAL LUCK: CRITICAL STRIKE PERCENTAGE // ELEVATED_
 +++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
 
 #### COMBAT RECORD: ENEMY LINES INTERCEPT_🪖🎮🕹️
+*  **Alienware Arena:** [DARRWOOD](https://na.alienwarearena.com/member/darrwood)
 *  **Discord:** [darwood3788](https://discord.com/users/darwood3788)
 *  **Steam:** [darwoodst](https://steamcommunity.com/profiles/76561199375704589/)
 *  **StreamElements:** [Darwoodt Asylum Lair](https://streamelements.com/darwoodt)
