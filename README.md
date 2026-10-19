@@ -251,5 +251,7 @@ OPERATIONAL LUCK: CRITICAL STRIKE PERCENTAGE // ELEVATED_
 #### COMBAT RECORD: ENEMY LINES INTERCEPT_🪖🎮🕹️
 *  **Discord:** [darwood3788](https://discord.com/users/darwood3788)
 *  **Steam:** [darwoodst](https://steamcommunity.com/profiles/76561199375704589/)
+*  **StreamElements:** [Darwoodt Asylum Lair](https://streamelements.com/darwoodt)
+*  **StreamLabs:** [Darren Andrew Long](https://streamlabs.com/dar_wood)
+*  **Twitch:** [darwoodt](https://www.twitch.tv/darwoodt)
 *  **Xbox:** [darwoodc](https://www.xbox.com/en-US/play/user/darwoodc)
-*  **Twitch:** [darwoodt](https://www.twitch.tv/darwoodt) 
